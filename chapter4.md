@@ -2,15 +2,15 @@
 
 The wizard's eyes studied him, and for a moment, the silence grew palpable. Finally, Keating waved his hand, loosening the vines. "If you truly desire change, you can have it. But not through theft. You must earn your place in this world."
 
-Owen looked shocked. "You… you mean I can keep The ORB?"
+Globlin looked shocked. "You… you mean I can keep The ORB?"
 
 Keating smiled softly. "If you prove your worth, yes. You must help me protect this land from those who seek to harm it. Join me as my apprentice."
 
-Simon barked in excitement while Owen’s face lit up. "Really? You’d allow me to learn magic? To work with you?"
+Simon barked in excitement while Globlin’s face lit up. "Really? You’d allow me to learn magic? To work with you?"
 
 "Yes," Keating said. "But it will be hard work. Do you accept?"
 
-With the weight of his choice heavy in the air, Owen nodded eagerly. "I accept!"
+With the weight of his choice heavy in the air, Globlin nodded eagerly. "I accept!"
 
 In the days that followed, Owen and Simon trained under Keating. Owen learned to use magic for good, finding his strength in helping others rather than stealing. He discovered his true potential was not in ORB but in the friendships he built and the lives he changed.
 
