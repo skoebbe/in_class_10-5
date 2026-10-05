@@ -1,4 +1,4 @@
-# Chapter 4
+# Chapter 4 - Happily Ever After
 
 The wizard's eyes studied him, and for a moment, the silence grew palpable. Finally, Keating waved his hand, loosening the vines. "If you truly desire change, you can have it. But not through theft. You must earn your place in this world."
 

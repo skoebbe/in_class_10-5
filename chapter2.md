@@ -1,4 +1,4 @@
-# Chapter 2
+# Chapter 2 - The Heisting of the ORB
 
 "Who dares to enter my sanctum?" Keating's towering figure appeared, his long robe billowing like a storm. The wizard’s eyes glinted with fury.
 

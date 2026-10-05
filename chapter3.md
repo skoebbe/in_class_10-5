@@ -1,4 +1,4 @@
-# Chapter 3
+# Chapter 3 - Keating's Clap Back
 
 Simon’s ears perked up. "Are you sure about this? The wizard is powerful! What if we get caught?"
 
