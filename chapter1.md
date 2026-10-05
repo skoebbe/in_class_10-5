@@ -10,3 +10,4 @@ One day, while Owen was rummaging through an old chest to find tools for his pla
 
 "I have a plan," Owen said, his voice brimming with excitement. "Tonight, under the cover of darkness, we’ll sneak into Keating’s tower and steal The ORB!"
 
+Stay tuned to find out what happens next in chapter 2!

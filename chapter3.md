@@ -1,18 +1,18 @@
 # Chapter 3
 
-"Who dares to enter my sanctum?" Keating's towering figure appeared, his long robe billowing like a storm. The wizard’s eyes glinted with fury.
+Simon’s ears perked up. "Are you sure about this? The wizard is powerful! What if we get caught?"
 
-Owen froze, his heart racing. "Uh, it’s just a little goblin looking for a new home!" he squeaked, trying to you friendly.
+Owen grinned, undeterred. "We won’t get caught. We’ll use the secret entrance I found last week. Trust me, Simon. This is our chance for a better life!"
 
-But Keating was not convinced. "You think you can steal from me without consequences?" He raised his hand, and a spark of energy crackled around him.
+As night fell, Owen and Simon set off toward the tower, the moonlight guiding their way. The path was overgrown, filled with shadows that danced around them. But Owen was determined. He knew that he had to get The ORB to change his life.
 
-In a burst of bravery, knowing there would be no escape without a fight, Owen jumped off the pedestal, clutching The ORB. "Not today!" he shouted.
+They reached the tower and carefully made their way to the back. Owen pointed to a small door partially hidden by vines. "That’s our way in," he whispered.
 
-Owen sprinted toward the door, adrenaline fueling his speed. Simon barked, urging him on. But Keating was fast; he flicked his wrist, and vines erupted from the ground, wrapping around Owen's legs.
+Inside, the air smelled of old books and potions. They crept forward, heartbeats echoing in the silence. After what felt like hours, they finally found themselves in a large room filled with magical artifacts, each more amazing than the last. At the center, on a pedestal made of crystal, lay The ORB, glowing softly.
 
-Trapped, Owen struggled, but his desire to escape burned stronger than the vines around him. "Let me go! I only wanted a chance!" he yelled, his voice a mix of fear and determination.
+"Wow!" Simon whispered, eyes wide. "It’s beautiful." 
 
-Keating’s expression softened slightly. "You seek power, little goblin. But what you truly need is courage. What would you do with The ORB? Change your life for the better?"
+The ORB said "What's up big dog?"
 
-Owen hesitated. Deep down, he didn’t just want power. He wanted to be free, to belong somewhere. "I don’t know," he admitted. "I just want to be more than a goblin."
+"Keep watch," Owen said, slipping into the room. He climbed up on the pedestal, carefully reaching for The ORB. Just as his fingers brushed the surface, a loud voice boomed from behind.
 
