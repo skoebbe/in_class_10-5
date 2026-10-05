@@ -12,6 +12,6 @@ Simon barked in excitement while Globlin’s face lit up. "Really? You’d allow
 
 With the weight of his choice heavy in the air, Globlin nodded eagerly. "I accept!"
 
-In the days that followed, Owen and Simon trained under Keating. Owen learned to use magic for good, finding his strength in helping others rather than stealing. He discovered his true potential was not in ORB but in the friendships he built and the lives he changed.
+In the days that followed, Globlin and Simon trained under Keating. Globlin learned to use magic for good, finding his strength in helping others rather than stealing. He discovered his true potential was not in ORB but in the friendships he built and the lives he changed.
 
-The world was now brighter for Owen, a goblin who once sought to steal but instead found his place in a world of wonder. Together with Simon and Keating, they safeguarded the land, proving that even the smallest of ORBS can achieve great things.
+The world was now brighter for Globlin, a goblin who once sought to steal but instead found his place in a world of wonder. Together with Simon and Keating, they safeguarded the land, proving that even the smallest of ORBS can achieve great things.

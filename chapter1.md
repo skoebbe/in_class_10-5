@@ -1,4 +1,4 @@
-# Chapter 1 - The Legend of Owen the Globlin
+# Chapter 1 - The Legend of Globlin the Globlin
 
 In a land where magic flowed like the rivers and creatures of wonder roamed freely, there lived a goblin named Globlin. Globlin was not an ordinary goblin; he was clever and crafty, always dreaming of a life more than scavenging in the dark corners of the forest. His small stature and green skin concealed a big ambition: he wanted to steal The ORB from the powerful wizard, Keating. The ORB was a glowing sphere that held immense power, granting its holder control over time itself.
 

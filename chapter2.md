@@ -8,10 +8,10 @@ As night fell, Globlin and Simon set off toward the tower, the moonlight guiding
 
 They reached the tower and carefully made their way to the back. Globlin pointed to a small door partially hidden by vines. "That’s our way in," he whispered.
 
-Owen sprinted toward the door, adrenaline fueling his speed. Simon barked, urging him on. But Keating was fast; he flicked his wrist, and vines erupted from the ground, wrapping around Owen's legs.
+Globlin sprinted toward the door, adrenaline fueling his speed. Simon barked, urging him on. But Keating was fast; he flicked his wrist, and vines erupted from the ground, wrapping around Globlin's legs.
 
-Trapped, Owen struggled, but his desire to escape burned stronger than the vines around him. "Let me go! I only wanted a chance!" he yelled, his voice a mix of fear and determination.
+Trapped, Globlin struggled, but his desire to escape burned stronger than the vines around him. "Let me go! I only wanted a chance!" he yelled, his voice a mix of fear and determination.
 
 "Keep watch," Globlin said, slipping into the room. He climbed up on the pedestal, carefully reaching for The ORB. Just as his fingers brushed the surface, a loud voice boomed from behind.
 
-Owen hesitated. Deep down, he didn’t just want power. He wanted to be free, to belong somewhere. "I don’t know," he admitted. "I just want to be more than a goblin."
+Globlin hesitated. Deep down, he didn’t just want power. He wanted to be free, to belong somewhere. "I don’t know," he admitted. "I just want to be more than a goblin."

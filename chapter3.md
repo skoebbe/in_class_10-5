@@ -4,7 +4,7 @@ Simon’s ears perked up. "Are you sure about this? The wizard is powerful! What
 
 Globlin froze, his heart racing. "Uh, it’s just a little goblin looking for a new home!" he squeaked, trying to you friendly.
 
-As night fell, Owen and Simon set off toward the tower, the moonlight guiding their way. The path was overgrown, filled with shadows that danced around them. But Owen was determined. He knew that he had to get The ORB to change his life.
+As night fell, Globlin and Simon set off toward the tower, the moonlight guiding their way. The path was overgrown, filled with shadows that danced around them. But Globlin was determined. He knew that he had to get The ORB to change his life.
 
 In a burst of bravery, knowing there would be no escape without a fight, Globlin jumped off the pedestal, clutching The ORB. "Not today!" he shouted.
 
